@@ -9,7 +9,7 @@ If skins are missing/Links don't work, let me know by messaging me on discord. T
 
 # If a skin is missing from this list, maybe try using some problem solving skills and try finding it yourself. Most skins are just mixes of recycled assets. Look for water marks under the healthbar or find a point in the VOD/video where Koa switches to the skin you're looking for.
 
-### #KoaLigmaQ is a skin pack featuring many different skins. Koa is using the [Lite] (Koa) version.
+### #KoaLigmaQ is a skin pack featuring many different skins. Koa is using an edited version with Merami's cursor.
 
 # [- #KoaLigmaQ 1.1](https://mega.nz/folder/pKwCyCDT#4hFHiCPBYIzw0RSgfD4pWQ)
 ![](https://i.imgur.com/EaB7RYG.png)
