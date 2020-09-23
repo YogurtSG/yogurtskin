@@ -6,7 +6,7 @@ This is a list of skins that Koa uses on his stream [here](https://twitch.tv/Koa
 Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.
 
 
-If skins are missing/Links don't work, message arokomi#6760 or kiwies#5555 on Discord and one of us will fix it. 
+### If skins are missing/Links don't work, message arokomi#6760 or kiwies#5555 on Discord and one of us will fix it. 
 
 
 # [- # Umbre v1.0 『MK』 # -](https://skins.osuck.net/index.php?newsid=1627)
