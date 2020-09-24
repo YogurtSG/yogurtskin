@@ -18,7 +18,7 @@ Click on the skin name to download. If the download does not start or displays s
 # [- #KoaLigmaQ](https://mega.nz/folder/gWwVwKzR#2pwIsA4m_d2I0SfXikynnQ)
 ![](https://i.imgur.com/EaB7RYG.png)
 
-# [KoaLigma『Niimi Sora』V2](http://www.mediafire.com/file/6qux48v5dl07kpj/-_%2523KoaLigma%25E3%2580%258ENiimi_Sora%25E3%2580%258F_%2523-%25282%2529.osk/file)
+# [KoaLigma『Niimi Sora』V2](http://www.mediafire.com/file/2i7a8sa6wjxfq1h/-_%2523KoaLigma%25E3%2580%258ENiimi_Sora%25E3%2580%258F_%2523-.osk/file#KoaLigma%E3%80%8ENiimi+Sora%E3%80%8F+#-.osk/file)
 ![](https://i.imgur.com/lDLMzw8.jpg)
 
 # [KoaLigma『Niimi Sora』](http://www.mediafire.com/file/2i7a8sa6wjxfq1h/-_%2523KoaLigma%25E3%2580%258ENiimi_Sora%25E3%2580%258F_%2523-.osk/file#KoaLigma%E3%80%8ENiimi+Sora%E3%80%8F+#-.osk/file)
