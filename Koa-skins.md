@@ -21,7 +21,7 @@ Click on the skin name to download. If the download does not start or displays s
 # [KoaLigma『Niimi Sora』V2](http://www.mediafire.com/file/6qux48v5dl07kpj/-_%2523KoaLigma%25E3%2580%258ENiimi_Sora%25E3%2580%258F_%2523-%25282%2529.osk/file)
 ![](https://i.imgur.com/lDLMzw8.jpg)
 
-# [KoaLigma『Niimi Sora』](http://www.mediafire.com/file/cprjvpbe7qpw99w/-_%2523KoaLigma%25E3%2580%258ENiimi_Sora%25E3%2580%258F_%2523-.osk/file)
+# [KoaLigma『Niimi Sora』](http://www.mediafire.com/file/2i7a8sa6wjxfq1h/-_%2523KoaLigma%25E3%2580%258ENiimi_Sora%25E3%2580%258F_%2523-.osk/file#KoaLigma%E3%80%8ENiimi+Sora%E3%80%8F+#-.osk/file)
 ![](https://i.imgur.com/PuHjVlI.jpg)
 
 # [vaxei nomod ver. 2](https://joofixd.s-ul.eu/RNQ0X5dB)
