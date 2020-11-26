@@ -8,6 +8,8 @@ Click on the skin name to download. If the download does not start or displays s
 
 ### If skins are missing/Links don't work, message arokomi#6760 or kiwies#5555 on Discord and one of us will fix it. 
 
+# [- #『CodeName∶ Bloo』 # -](https://drive.google.com/file/d/1CXNBA3M_qIKpwWYp2oAC2RUjcW_QeWun/view?usp=sharing)
+![](https://i.imgur.com/WqP9Hes.png)
 
 # [- # Umbre v1.0 『MK』 # -](https://skins.osuck.net/index.php?newsid=1627)
 ![](https://i.imgur.com/jBs5EjW.jpg)
