@@ -8,6 +8,9 @@ Click on the skin name to download. If the download does not start or displays s
 
 ### If skins are missing/Links don't work, message arokomi#6760 on Discord and I will fix it. 
 
+# [- # VyshusKaguya # -](https://drive.google.com/file/d/16bsj8q4InS5u2CSxPA0YlcP67cJIyTtD/view)
+![](https://i.imgur.com/wleIaTQ.png)
+
 # [- #『CodeName∶ Bloo』 # -](https://drive.google.com/file/d/1CXNBA3M_qIKpwWYp2oAC2RUjcW_QeWun/view?usp=sharing)
 ![](https://i.imgur.com/WqP9Hes.png)
 
