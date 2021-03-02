@@ -8,6 +8,9 @@ Click on the skin name to download. If the download does not start or displays s
 
 ### If skins are missing/Links don't work, message arokomi#6760 on Discord and I will fix it. 
 
+# [- # Aristia(Edit)+trail # -](https://mega.nz/file/NuoSXI4J#0xzmrfLyW_6qXocF_NZcFlZ0--UmFvxEEtFRn7h98LI)
+![](https://skins.osuck.net/uploads/posts/2019-07/1561975225_screenshot5518.jpg)
+
 # [- # VyshusKaguya # -](https://drive.google.com/file/d/16bsj8q4InS5u2CSxPA0YlcP67cJIyTtD/view)
 ![](https://i.imgur.com/wleIaTQ.png)
 
