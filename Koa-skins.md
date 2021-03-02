@@ -3,7 +3,7 @@
 
 This is a list of skins that Koa uses on his stream [here](https://twitch.tv/KoaLeahq).
 
-Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.
+Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + r and try again.
 
 
 ### If skins are missing/Links don't work, message arokomi#6760 on Discord and I will fix it. 
