@@ -5,8 +5,7 @@ This is a list of skins that Koa uses on his stream [here](https://twitch.tv/Koa
 
 Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + r and try again.
 
-
-### If skins are missing/Links don't work, message arokomi#6760 on Discord and I will fix it. 
+## Hello this is outdated and won't be updated as long as Koa is inactive.
 
 # [- # Aristia(Edit)+trail # -](https://mega.nz/file/NuoSXI4J#0xzmrfLyW_6qXocF_NZcFlZ0--UmFvxEEtFRn7h98LI)
 ![](https://i.imgur.com/eifPuMz.jpg)
