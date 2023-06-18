@@ -1,4 +1,4 @@
-# YogurtSG Skins
+# YogurtSG Skins XD
 
 
 This is a list of skins that Yogurt uses on his stream [here](https://twitch.tv/yogurtsg).
