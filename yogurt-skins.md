@@ -7,8 +7,8 @@ Click on the skin name to download. If the download does not start or displays s
 
  Hello this is not 100% as Yogurt switches off skins constantly -_- .
 
-# [-  Moonshine 2.1 NM  -](https://drive.google.com/drive/folders/142WuLAnC5vczBMvOLUMdE155_2ew9QXD) MAKE SURE IT'S NM
-![](https://i.ppy.sh/dd32fb4632fc70ddcf5ae409f3ec1b15eb6c78de/68747470733a2f2f696d6775722d617263686976652e7070792e73682f784d576f57596a2e706e67)
+# [-  zadymiarz 3 v1.0  -](https://skins.osuck.net/skins/4083?v=0) MAKE SURE IT'S NM
+![](https://skins.osuck.net/images/screenshots/4d77eabccf85d80e1984c012aec7fabf.webp)
 
 # [- Selyui -](https://drive.google.com/drive/folders/10NPp32RVPLjO0KWH0uHCDVmRsnOpOaMX)
 ![](https://i.imgur.com/l0mqFpe.png)
@@ -19,14 +19,14 @@ Click on the skin name to download. If the download does not start or displays s
 # [- # Umbre v1.0 『MK』 # -](https://skins.osuck.net/index.php?newsid=1627)
 ![](https://i.imgur.com/jBs5EjW.jpg)
 
-# [- #KoaLigmaQ 1.1](https://mega.nz/folder/pKwCyCDT#4hFHiCPBYIzw0RSgfD4pWQ)
-![](https://i.imgur.com/EaB7RYG.png)
+# [- BTMC REIMAGINED](https://skins.osuck.net/skins/4062?v=0)
+![](https://skins.osuck.net/images/screenshots/c63c3e269f6196b4cec05a2a61e81247.webp)
 
 # [Rafis HDDT ](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://i.imgur.com/v6l7tYJ.jpg)
 
-## [『BlooMoon Re;Done』 - ft. Xootynator Long Blue Trail ](https://drive.google.com/file/d/1-Q52NF-LhqBA5GWbqtKnEUoV7NubcaRL/view?usp=sharing)
-![](https://i.imgur.com/oamiz1s.jpg)
+## [#Azerite v1.2 osu skin ](https://skins.osuck.net/skins/2?v=0)
+![](https://skins.osuck.net/images/screenshots/260469432673932e1d895b4b2f48ef79.webp)
 
 
 
